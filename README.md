@@ -1,1 +1,1 @@
-# Global-Maths-Club
+# G
